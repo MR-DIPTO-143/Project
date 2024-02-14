@@ -1,2 +1,2 @@
-# Project
-Simple python projects :)
+* GIVE STAR ⭐ MY REPO
+* STAY WITH MR.DIPTO FOR MORE PROJECT
